@@ -1,0 +1,1 @@
+professor este trabalho é meramente para que nao seja enviado com nada pelo meu desempenho na prova me vi a pensar que teria uma melhor nota focando no proximo bimestre e fazendo a Sub agradeço por tudo 
